@@ -8,7 +8,7 @@
 - 📫 How to reach me **avinashkr14730@gmail.com**
 
 - ⚡ Fun fact **Addiction**
--  <img align="right" alt="coding"  height="30px" width="30px" src="https://camo.githubusercontent.com/2391d7be5a3b6dd…0302f302a4647443642557a7a5a7331564a4c75592e676966">
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
